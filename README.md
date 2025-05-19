@@ -1,5 +1,5 @@
 - ䷊ Peace, I be @realubqtos
-- 👀 I’m interested in building prosperous futures
+- 👀 I’m building prosperity
 - 🌱 I’m currently learning AI code development and international trade
 - 💞️ I’m looking to collaborate on efforts committed to improving livelihoods
 - 📫 How to reach me here: real at ubqtos.io
